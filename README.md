@@ -1,4 +1,3 @@
-[Copy of Wonsulting Resume Template (FILE -> MAKE A COPY).md](https://github.com/user-attachments/files/33949240/Copy.of.Wonsulting.Resume.Template.FILE.-.MAKE.A.COPY.md)
 **Isabella Porretta**  
 Anaheim, CA \| isabellasporretta@gmail.com  
 **EDUCATION**  
